@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JonhatanFloresMoreno
-- 👀 I’m interested in data analysis, visualization, 
+- 👀 I’m interested in data analysis, visualization, photography and running.
 - 🌱 I’m currently learning to be a data analyst
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... floresjonhatan13@gmail.com
